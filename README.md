@@ -1,0 +1,2 @@
+# salaspitg.github.io
+おきば
